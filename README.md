@@ -1,0 +1,1 @@
+# resources.kivancturker.com
